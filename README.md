@@ -5,4 +5,4 @@
 - 👯 I'm looking to collaborate with other developers in assisting in the development of application projects
 - 💬 You can ask me about any projects you need assistance with!
 - 📫 How to reach me: kingszone001@gmail.com
-- ⚡ Fun fact: I live in London!
+- ⚡ Fun fact: I live in England!
